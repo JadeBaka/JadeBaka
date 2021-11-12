@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @JadeBaka
 - 👀 I’m interested in Crypto
-- 📫 How to reach me Baker_ben
+- 📫 reach me via telegram @Baker_ben
 
 <!---
 JadeBaka/JadeBaka is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
